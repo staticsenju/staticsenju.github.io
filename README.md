@@ -1,0 +1,1 @@
+# staticsenju.github.io
